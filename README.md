@@ -1,16 +1,13 @@
-## Hi there 👋
+## About me:
 
-<!--
-**stvtixrdio/Stvtixrdio** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I like radiostatic, and i do art trade! and colab, 
 
-Here are some ideas to get you started:
+and actually, im a introvert if yk that, 
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+i like to animate, draw, colab, anything that represents,
+
+- ‼️ I’m currently working on smth
+- 🎙️ I’m currently learning german / Spanish
+-  📻 Ask me about anything 
+- ⚡ How to reach me: dunno figure it out
+-  Pronouns: she/her
