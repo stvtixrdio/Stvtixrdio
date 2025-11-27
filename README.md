@@ -1,4 +1,6 @@
-# twink <div align="center"> <img src="https://files.catbox.moe/l37mvg.jpeg" alt="ALASTOR BANNER" style="max-width: 100%; height: auto; display: block; object-fit: contain;"></div>  
+<div align="center">
+  <img src="https://litter.catbox.moe/tyk5lkj2t92hfhyb.png" alt="VOX Banner" style="max-width: 100%; height: auto; display: block; object-fit: contain;">
+</div>
 
 
 
