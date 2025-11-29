@@ -1,7 +1,9 @@
 <div align="center">
-  <img src="https://litter.catbox.moe/tyk5lkj2t92hfhyb.png" alt="VOX Banner" style="max-width: 100%; height: auto; display: block; object-fit: contain;">
+  <img src="https://litter.catbox.moe/ytojl5qq0jvxvqrk.jpg" alt="VOX Banner" style="max-width: 100%; height: auto; display: block; object-fit: contain;">
 </div>
 
+
+and if you feel uncomfortable abt radiostatic thenn it's fine 
 
 
 ## About me:
