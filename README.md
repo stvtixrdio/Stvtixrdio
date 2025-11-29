@@ -20,3 +20,6 @@ causally, people call me, ANYTHING
 <div align="center">
   <img src="https://litter.catbox.moe/ped2z4x49s7d6abd.jpg" alt="VOX Banner" style="max-width: 100%; height: auto; display: block; object-fit: contain;">
 </div>
+
+
+and ofc my best friend to! marlowe o_0 i love my best friend's 
