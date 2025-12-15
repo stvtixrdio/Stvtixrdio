@@ -22,4 +22,4 @@ causally, people call me, ANYTHING
 </div>
 
 
-and ofc my best friend to! marlowe o_0 i love my best friend's 
+and ofc I'm taken by someone. 👀
