@@ -3,17 +3,12 @@
 </div>
 
 
-and if you feel uncomfortable abt radiostatic thenn it's fine 
+i like radiostatic/radiosilence and if you feel uncomfortable abt radiostatic thenn it's fine 
 
 
 ## About me:
 
-i like to animate, draw, colab, anything that represents,
-
-causally, people call me, ANYTHING
-
-
-𓂃ෆ˚  ᯓ  ˏ  ╵ ◠◠  〣 📻
+i like to animate, draw, colab, anything that represent, taken, 
 
 
 ## MY FRIEND'S!!! ( behind them is me oky? the blue one. )
@@ -22,4 +17,3 @@ causally, people call me, ANYTHING
 </div>
 
 
-and ofc I'm taken by someone. 👀
